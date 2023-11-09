@@ -24,6 +24,6 @@ Estoy comprometido a seguir desarrollando mis habilidades y conocimientos en est
 
 ## 📫 Cómo contactarme
 
-email: igutierrezr03
+correo electrónico: igutierrezr03
 
 ¡Espero poder compartir y aprender junto a ustedes en este camino!
